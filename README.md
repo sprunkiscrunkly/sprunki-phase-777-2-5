@@ -8,7 +8,7 @@
 
 Sprunki Phase 777 2.5 - a surreal musical experience where chaos meets harmony! Create haunting soundscapes, interact with enhanced characters, and immerse yourself in mesmerizing visuals.
 
-Sprunki Phase 777 2.5 elevates the musical creation experience with its unique blend of surreal aesthetics and dynamic sound design. Players craft intricate [ compositions](https://sprunkiscrunkly.com/sprunki-phase-777-2-5/#) while exploring a mysterious and enhanced universe.
+Sprunki Phase 777 2.5 elevates the musical creation experience with its unique blend of surreal aesthetics and dynamic sound design. Players craft intricate  compositions while exploring a mysterious and enhanced universe.
 
 In Sprunki Phase 777 2.5, each enhanced character brings distinct haunting sounds and refined animations, offering unprecedented depth in musical experimentation.
 
